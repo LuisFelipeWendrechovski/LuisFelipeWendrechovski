@@ -1,0 +1,3 @@
+- 👋 Olá meu nome é Luis Felipe 
+- 👀  Sou aluno do Colegio Frederico Guilherme Giese
+- 💞️  1°A Ensino Medio 
